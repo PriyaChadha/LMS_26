@@ -16,4 +16,4 @@ Kept in an airtight container in the fridge, banana pudding will last up to 4 da
 Yields |Preperation Time | Freeze Time | Total Estimated Time
 ------ | ----------------|-------------|-----------
 10 | 0 hrs. 25 mins. | 3-4 hours or Overnight | 3 hrs. 25 mins.
-Content in the first column | Content in the second column
+
